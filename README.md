@@ -23,7 +23,7 @@ Skills & Technologies
 
  Connect With Me
 - **LinkedIn:** [My LinkedIn Profile](https://www.linkedin.com/in/peter-alao-67a344)
-- **Email:**temiloluwapeter411@gmail.com
+- **Email:** temiloluwapeter411@gmail.com
 
 ---
 
